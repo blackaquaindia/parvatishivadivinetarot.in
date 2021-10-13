@@ -1,2 +1,0 @@
-# parvatishivadivinetarot.in
-parvatishivadivinetarot.in
