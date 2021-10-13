@@ -1,0 +1,2 @@
+# parvatishivadivinetarot.in
+parvatishivadivinetarot.in
